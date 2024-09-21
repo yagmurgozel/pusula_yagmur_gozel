@@ -1,5 +1,7 @@
 # pusula_yagmur_gozel
 
+Yagmur GOZEL
+yagmurgozel@gmail.com
 
 # Overview
 
